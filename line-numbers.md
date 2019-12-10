@@ -8,7 +8,7 @@
 #### 8
 #### 9 Github is really awesome.
 #### 10
-#### 11
+#### 11 School is decent I guess.
 #### 12
 #### 13
 #### 14
